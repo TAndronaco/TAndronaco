@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @TAndronaco
 - 👀 I’m interested in reading new books, good and bad
-- 🌱 I’m currently learning more coding languages and how to skate
+- 🌱 I’m currently learning more coding languages and how to skate (with a skateboard)
 - 💞️ I’m looking to collaborate on any passion projects that bring a novel idea forth
 - 📫 How to reach me email me @ tandronacopro@gmail.com
 - 😄 Pronouns: he/him
